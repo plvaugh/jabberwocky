@@ -12,3 +12,5 @@ The jaws that bite the claws that catch
 beware the jub jub bird and shun the frumious bandersnatch
 
 He took his vorpal sword in hand
+Long time the maxome foe he sought--
+so rested he by the tum tum tree

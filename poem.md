@@ -16,3 +16,5 @@ Long time the maxome foe he sought--
 so rested he by the tum tum tree
 
 And stood awhile in in thought.
+And as in uffish thought he stood
+the jabberwock, with eyes of flame!
